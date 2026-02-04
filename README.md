@@ -1,0 +1,2 @@
+# galerigerejaimmanueljakartapusat
+galeri
